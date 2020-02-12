@@ -1,1 +1,0 @@
-https://vitaliuststilouski.github.io/rsschool-cv/cv
